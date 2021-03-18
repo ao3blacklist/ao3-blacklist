@@ -15,3 +15,9 @@ Things that I may add in the future:
 
 Have any suggestions? Please let me know on tumblr or through here. 
 Have I made a mistake and/or have you encountered a creator you want to add? Let me know!
+
+A word of warning: do NOT harass any of the individuals in this blacklist.
+
+I may not condone their actions but witchunting/threatening/hunting down these creators is unacceptable. 
+This blacklist was created to limit contact with problematic content in the fandom but is by no means an 
+invitation to harass or attack others.
