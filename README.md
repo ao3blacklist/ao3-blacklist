@@ -10,9 +10,6 @@ Things that get you on the JJK ao3 blacklist:
 - incest
 - beastiality
 
-Things that I may add in the future:
-- adult characters x sukuna
-
 Have any suggestions? Please let me know on tumblr or through here. 
 Have I made a mistake and/or have you encountered a creator you want to add? Let me know!
 
